@@ -1,4 +1,4 @@
-- 👋 Oi, I’m Thaís Silveira 
+-                                              Oii, 😊I’m Thaís Silveira 
 - 👧Mãe de duas princesas
 - 👩‍⚕️Sou Fisioterapeuta desde 2020
 - 👀 Estou interessada em mudar de profissão 
