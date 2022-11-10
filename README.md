@@ -1,5 +1,5 @@
 - 👋 Oi, I’m Thaís Silveira 
-- 👧Tenho duas filhas Luiza com 8 anos e Julia com 4 anos 
+- 👧Mãe de duas princesas
 - 👩‍⚕️Sou Fisioterapeuta desde 2020
 - 👀 Estou interessada em mudar de profissão 
 - 🌱 Atualmente estou realizando um curso completo de teste de software
